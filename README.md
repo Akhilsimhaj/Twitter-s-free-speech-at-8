@@ -9,7 +9,7 @@
 
 
 
-The first I allegation that elone musk  put forward  8is a political bias in Twitter is used against the principle of free speech and even you and me beveling  the same because you are feed has evolved a certain way to make you believe.
+The first allegation that elone musk  put forward  8is a political bias in Twitter is used against the principle of free speech and even you and me beveling  the same because you are feed has evolved a certain way to make you believe.
 but in truth not have a political bias on social media platform is practically impossible because 
 When we look at the root cause of this toxic and biased content,
 
